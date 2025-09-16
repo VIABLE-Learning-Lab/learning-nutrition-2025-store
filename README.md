@@ -1,1 +1,1 @@
-# learning-nutrition-2025
+# learning-nutrition-2025-store
